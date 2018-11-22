@@ -22,5 +22,6 @@ PocketCNC simulation:
 https://sim.pocketnc.com/
 
 
+CAD soft: https://www.onshape.com/products/education
 
 
