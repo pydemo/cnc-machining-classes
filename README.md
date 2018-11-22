@@ -24,4 +24,8 @@ https://sim.pocketnc.com/
 
 CAD soft: https://www.onshape.com/products/education
 
+Routers:
+https://www.amazon.com/Makita-RT0701C-1-1-Compact-Router/dp/B00E7D3V4S/
 
+
+https://www.amazon.com/Ridgid-R2401-Laminate-Trim-Router/dp/B001W0ZI7C/
