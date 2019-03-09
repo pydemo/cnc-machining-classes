@@ -34,6 +34,11 @@ Vaccum:
 HEPA filter quiet cylinder wet and dry shop vacuum
 https://www.homedepot.com/p/Vacmaster-8-gal-HEPA-Industrial-Wet-Dry-Vac-with-2-Stage-Motor-VK811PH/203024027?cm_mmc=Shopping%7CG%7CBase%7CD25T%7C25-14_WET+DRY+VACS%7CNA%7CPLA%7c71700000034127209%7c58700003933017535%7c92700041524730409&gclid=Cj0KCQiA5Y3kBRDwARIsAEwloL5wPxE7hWiJm_dKNRNOLVA35IbIkitTB7SphtLEgoT4xflm3XyD-ToaAjOXEALw_wcB&gclsrc=aw.ds
 
+OEMTOOLS 25025 26 Blade Master Feeler Gauge
+https://www.amazon.com/OEMTOOLS-25025-Blade-Master-Feeler/dp/B000BYGIR4/ref=pd_rhf_schuc_p_img_3?_encoding=UTF8&psc=1&refRID=ZP9E8QT04WEEY4HJ9NXD
+
+
+
 
 tag top side:
 https://www.soigeneris.com/taig-steady-rest-332-to-1-12-capacity-1200
