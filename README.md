@@ -38,3 +38,22 @@ https://www.homedepot.com/p/Vacmaster-8-gal-HEPA-Industrial-Wet-Dry-Vac-with-2-S
 tag top side:
 https://www.soigeneris.com/taig-steady-rest-332-to-1-12-capacity-1200
 
+Stuff from this video:
+Edge Finder: https://amzn.to/2GXyxgX
+End Mill Bits: http://amzn.to/2nqbt11
+Drill Vice: https://amzn.to/2vg1cbu
+
+Mill: https://amzn.to/2GZ3dOQ
+
+Lathe: https://amzn.to/2nVBrEc
+
+Stuff on the lathe:
+Quick Change Tool Holder: https://amzn.to/2oZtFee
+Tailstock Drill Chuck: https://amzn.to/2pmE0jX
+
+Lathe tools:
+Boring Bar: https://amzn.to/2pmy0b1
+Carbide Tools: https://amzn.to/2oRZWax
+Parting Tool: https://amzn.to/2nVCeW1
+Center Bits: https://amzn.to/2oRRV5n
+Drill Bits: http://amzn.to/2oz9W76
