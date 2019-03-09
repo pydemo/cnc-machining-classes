@@ -62,3 +62,7 @@ Carbide Tools: https://amzn.to/2oRZWax
 Parting Tool: https://amzn.to/2nVCeW1
 Center Bits: https://amzn.to/2oRRV5n
 Drill Bits: http://amzn.to/2oz9W76
+
+WEN benchtop millinng:
+https://www.homedepot.com/p/WEN-4-5A-Variable-Speed-Single-Phase-Compact-Benchtop-Metal-Milling-Machine-with-R8-Taper-33013/306114404?cm_mmc=Shopping%7CG%7CBase%7CAll-Products%7CAll%7CAll%7CPLA%7c71700000014585962%7c58700001236285396%7c92700010802552394&gclid=Cj0KCQiA5Y3kBRDwARIsAEwloL6otQD45Hot0edHh6Z96qlhBVVKxTms4Tg4kVE_fCJshX_Km1K7vBwaAuKsEALw_wcB&gclsrc=aw.ds
+
