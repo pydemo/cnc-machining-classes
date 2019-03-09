@@ -27,6 +27,9 @@ CAD soft: https://www.onshape.com/products/education
 Router options: https://sienci.com/mill-one-resources/router-options/
 https://www.amazon.com/Makita-RT0701C-1-1-Compact-Router/dp/B00E7D3V4S/
 
+Tooling plate:
+https://www.soigeneris.com/taig-tooling-plate-2010
+
 
 https://www.amazon.com/Ridgid-R2401-Laminate-Trim-Router/dp/B001W0ZI7C/
 
