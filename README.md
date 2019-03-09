@@ -37,6 +37,7 @@ https://www.homedepot.com/p/Vacmaster-8-gal-HEPA-Industrial-Wet-Dry-Vac-with-2-S
 OEMTOOLS 25025 26 Blade Master Feeler Gauge
 https://www.amazon.com/OEMTOOLS-25025-Blade-Master-Feeler/dp/B000BYGIR4/ref=pd_rhf_schuc_p_img_3?_encoding=UTF8&psc=1&refRID=ZP9E8QT04WEEY4HJ9NXD
 
+taig CNC mill prices : http://www.cartertools.com/mill.html#prices
 
 
 
