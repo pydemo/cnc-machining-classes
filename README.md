@@ -29,3 +29,12 @@ https://www.amazon.com/Makita-RT0701C-1-1-Compact-Router/dp/B00E7D3V4S/
 
 
 https://www.amazon.com/Ridgid-R2401-Laminate-Trim-Router/dp/B001W0ZI7C/
+
+Vaccum:
+HEPA filter quiet cylinder wet and dry shop vacuum
+https://www.homedepot.com/p/Vacmaster-8-gal-HEPA-Industrial-Wet-Dry-Vac-with-2-Stage-Motor-VK811PH/203024027?cm_mmc=Shopping%7CG%7CBase%7CD25T%7C25-14_WET+DRY+VACS%7CNA%7CPLA%7c71700000034127209%7c58700003933017535%7c92700041524730409&gclid=Cj0KCQiA5Y3kBRDwARIsAEwloL5wPxE7hWiJm_dKNRNOLVA35IbIkitTB7SphtLEgoT4xflm3XyD-ToaAjOXEALw_wcB&gclsrc=aw.ds
+
+
+tag top side:
+https://www.soigeneris.com/taig-steady-rest-332-to-1-12-capacity-1200
+
